@@ -1,5 +1,5 @@
-### Hi there 👋
-
+### Hi there 👋 I AM DRIPTO FROM KOTAI ELECTRONICS. THIS IS MY WORK ACCOUNT. 
+### YOU CAN REACH ME OUT ON MY PERSONAL GITHUB / LINKEDIN PROFILE
 <!--
 **Kotai-Dripto/Kotai-Dripto** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
